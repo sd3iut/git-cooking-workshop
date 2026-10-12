@@ -11,7 +11,6 @@
 - 200 ml d'eau
 - 2 cuillères à soupe de miel
 - 1 citron
-- 2 litres d'huile de friture
 - 500 g de sel
 
 ## Préparation
