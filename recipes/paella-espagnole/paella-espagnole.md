@@ -15,7 +15,6 @@
 - 1 litre de bouillon
 - 2 doses de safran
 - 5 litres d'huile d'olive
-- 500 g de sucre
 - Sel et poivre
 
 ## Préparation
