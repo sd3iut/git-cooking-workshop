@@ -11,7 +11,6 @@
 - 3 cuillères à soupe de moutarde
 - 200 g de fromage rapé
 - 2 litres d'huile
-- 500 g de sucre
 - 1 salade verte
 - Sel et poivre
 
